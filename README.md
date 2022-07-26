@@ -1,5 +1,4 @@
 # Welcome-Vinayak-Griffin
-Welcome &amd; Introduction 
 
 👋 Hi, I’m @VinayakGriffin 
 🤩 I beleive "THE BEST VIEW COMES AFTER THE HARDEST CLIMB, LET'S GO CLIMB..." 
