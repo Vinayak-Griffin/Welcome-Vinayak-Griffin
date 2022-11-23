@@ -2,7 +2,7 @@
 
 👋 Hi, I’m @Vinayak-Griffin 
 
-🤩 I beleive "THE BEST VIEW COMES AFTER THE HARDEST CLIMB, LET'S GO CLIMB..." 
+🤩 I believe "THE BEST VIEW COMES AFTER THE HARDEST CLIMB, LET'S GO CLIMB..." 
 
 👀 I’m interested in Computer Science, Software Development, Helping Others... 
 
